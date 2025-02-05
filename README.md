@@ -1,4 +1,4 @@
-# 👩‍🚀 About Me:
+# 👩‍🚀 Hi, I'm Priss, somethings about Me:
 🌌 16-year-old dreamer on a mission to reach the stars ✨
 <br>🎓 High school student and proud member of the FIRST Robotics Team Imperator 5887<br>
 🚀 Aspiring astronaut, passionate about space, technology, and creating impactful applications
